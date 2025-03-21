@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @darklink2151
+- 👋 Hi, I’m dirt.jr
 - 👀 I’m interested in linux cash sundown 
 - 🌱 I’m currently learning I.T SHIT
 - 💞️ I’m looking to collaborate on getting money

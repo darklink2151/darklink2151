@@ -1,10 +1,10 @@
 - 👋 Hi, I’m dirt.jr
-- 👀 I’m interested in linux cash sundown 
-- 🌱 I’m currently learning I.T SHIT
-- 💞️ I’m looking to collaborate on getting money
+- 👀 I’m interested in Linux cash sundown 
+- 🌱 I’m currently learning IT ethical hacking
+- 💞️ I’m looking to collaborate on anything that can get me a job in tech. I almost have an ethical hacking certificate. I am good with Linux.
 - 📫 How to reach me beckdonny09@gmail.com
-- 😄 Pronouns: ...????
-- ⚡ Fun fact: ...I have be to prison im fucked up.
+- 😄 Pronouns: ...Straight MAN
+- ⚡ Fun fact: ...I love rap music.
 
 <!---
 darklink2151/darklink2151 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

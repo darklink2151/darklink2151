@@ -1,5 +1,5 @@
-- 👋 Hi, I’m dirt.jr
-- 👀 I’m interested in Linux cash sundown 
+- 👋 Hi, I’m D
+- 👀 I’m interested in Linux Python ,GitHub cursor ,AI car audio, sundown 
 - 🌱 I’m currently learning IT ethical hacking
 - 💞️ I’m looking to collaborate on anything that can get me a job in tech. I almost have an ethical hacking certificate. I am good with Linux.
 - 📫 How to reach me beckdonny09@gmail.com
